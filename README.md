@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @pankajshivpuje
-- 👀 I’m interested in making super products super easy for users to use.
+- 👀 I’m interested in making products super easy for users to use.
 - 🌱 I’m currently learning new technologies that makes life easier on our planet earth.
 - 💞️ I’m looking to collaborate with anyone who wants work with me on this mission.
 - 📫 How to reach me on twitter pankaj.shivpuje@gmail.com
